@@ -1,1 +1,1 @@
-Aflevering 1, 1 Semester 
+Aflevering 1
